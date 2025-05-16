@@ -1,4 +1,4 @@
-## PEC3 visionant el futur amb les ulleres de Manovich: redescobrint la hibridació
+## PAC3 visionant el futur amb les ulleres de Manovich: redescobrint la hibridació
 
 
 Autor: Sergio Cordon Almendro
